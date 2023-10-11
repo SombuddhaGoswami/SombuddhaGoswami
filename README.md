@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SombuddhaGoswami
-- 👀 I’m interested in Artificial Intelligence, Robotics & Automation
+- 👀 I’m interested in Data Analytics and Business Intelligence roles
 - 🌱 I’m currently a BTech Student
 - 📫 How to reach me? Mail me at sgoswami99033@gmail.com
 - Technology is Our BestFriend🍻 Use it wisely🤖
